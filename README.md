@@ -1,0 +1,2 @@
+# Pesudokod-
+Individuell Examination
